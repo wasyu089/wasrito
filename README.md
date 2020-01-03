@@ -1,0 +1,2 @@
+# wasrito
+Lonte asw kao
